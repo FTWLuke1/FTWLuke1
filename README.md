@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Infiltra Network<br><br>🌱 I’m currently learning More C++ and Html<br><br>👯 I’m looking to collaborate on More Pcb/Code based projects like<br><br>🤝 I’m looking for help with Pcb Design for Infiltra<br><br>👨‍💻 All of my projects are available at https://github.com/FTWLuke1/D1HackGear/tree/main<br><br>📝 I regularly Post videos At https://www.tiktok.com/@d1goat0<br><br>💬 Ask me about Past Projects/Experience<br><br>📫 How to reach me Imlukeyo@outlook.com<br><br>📄 Know about my experiences https://github.com/FTWLuke1
+🔭 I’m currently working on Infiltra Network<br><br>🌱 I’m currently learning More C++ and Html<br><br>👯 I’m looking to collaborate on More Pcb/Code based projects like<br><br>🤝 I’m looking for help with Pcb Design for Infiltra<br><br>👨‍💻 All of my projects are available at https://github.com/FTWLuke1/D1HackGear/tree/main<br><br>📝 I regularly Post videos At https://www.tiktok.com/@d1goat0<br><br>💬 Ask me about Past Projects/Experience<br><br>📄 Know about my experiences https://github.com/FTWLuke1
 
 
 ## 🌐 Socials:
